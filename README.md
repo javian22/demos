@@ -1,5 +1,2 @@
 # demos
-semokesmiall
-fakdjfi
-sjdfnasfisbdfkudfyver
-jbanobvaojdh
+hey can we not save a bunch of money on care insurance
